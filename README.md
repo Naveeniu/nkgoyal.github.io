@@ -1,1 +1,0 @@
-# nkgoyal.github.io
